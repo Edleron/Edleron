@@ -10,6 +10,7 @@
 - 📫 How to reach me: **edleron@hotmail.com**
 - ⚡ Fun fact: I am thinking of starting a startup. I also have crazy ideas.
 - 🔭 Happy codings !
+- 🔭 Happy game !
 
 ---
 
